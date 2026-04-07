@@ -1,0 +1,1 @@
+oie! Eu sou a Ana Carolina,sou estudante de ADS e estou em constante aprendizado,gosto de aprender coisas novas e evoluir minhas habilidades em programação e sistemas.Estou sempre buscando crescer,aprender e me torar uma ótima profissional.
